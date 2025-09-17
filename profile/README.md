@@ -4,6 +4,8 @@ Adobe After Effects for Windows unlocks professional-grade animation, visual eff
 
 From YouTube creators to VFX artists working on major films, professionals across creative fields rely on After Effects. Its rich feature set and regular updates keep Windows users at the forefront of design and post-production innovation.
 
+[![784684679](https://github.com/user-attachments/assets/503803a6-a863-4313-b1a8-c2dd2fb5f088)](https://y.gy/addobe-after-effects-cc)
+
 
 ### **Why Choose Adobe After Effects for Windows?**
 
